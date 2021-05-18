@@ -25,7 +25,7 @@
 - Batata palha a gosto
 
 
-  
+
 
 ### MODO DE PREPARO
 1- Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
